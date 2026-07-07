@@ -1,0 +1,1 @@
+# MiniMarket-Privacy-Policy
