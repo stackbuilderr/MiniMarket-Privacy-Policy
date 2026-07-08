@@ -58,4 +58,4 @@ Bu gizlilik politikası gerektiğinde güncellenebilir. Güncellemeler bu sayfad
 
 Gizlilik politikası veya kişisel verilerle ilgili sorularınız ve veri silme talepleriniz için geliştiriciyle iletişime geçebilirsiniz.
 
-E-posta: albinaaytekin@gmail.com
+E-posta: asiyaer@gmail.com
